@@ -1,1 +1,1 @@
-# training
+# trainingvvk .kj . lk 
